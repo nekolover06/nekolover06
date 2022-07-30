@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @nekolover06
-- 👀 I’m interested in coding, science and pets.
-- 🌱 I’m currently learning Japanese and webcoding.
+- 👋 Hi, I’m ヌラ/NIA A
+- 👀 I’m interested in science, languages, and cats.
+- 🌱 I’m currently studying a whole lot of wonderful things
 - 💞️ I’m not looking to collaborate on anythng yet *sweat_smile*
 - 📫 How to reach me: 
 I'm on Pinterst @melowcorn_nia
